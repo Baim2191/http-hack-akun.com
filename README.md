@@ -1,1 +1,1 @@
-Mabar ff yok
+Mabar ff yuk
