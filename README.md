@@ -1,2 +1,1 @@
-# http-hack-akun.com
-Hack akun
+Mabar ff yok
